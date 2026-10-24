@@ -1,2 +1,3 @@
 # Kamo
-I'll be starting my own new repository 
+I'll let's do this together 
+
